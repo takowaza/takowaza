@@ -8,7 +8,7 @@
      basic gist is i like wolves & mule deer & goats & elk & pronghorns & sheep & cows and 5 million other ungulate :3
   </p>
  
-  <p align="center"> try mny recipe boy https://takowaza.straw.page
+  <p align="center"> try mny recipe boy https://thecaldera.straw.page
   </p>
 
   <p align="center">
