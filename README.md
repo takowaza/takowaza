@@ -1,16 +1,8 @@
-<p align="center">
-  <img src="https://i.imgur.com/RaheAp9.png" />
-  </p>
-<p align="center">
-  im kilo !!!!!!!!!!!!!!!!!!!!
-  </p>
-  <p align="center">
-     basic gist is i like wolves & mule deer & goats & elk & pronghorns & sheep & cows and 5 million other ungulate :3
-  </p>
- 
-  <p align="center"> try mny recipe boy https://listography.com/5346522933
-  </p>
+ <p align="center"><img src="https://i.imgur.com/rZg2DIW.gif" /></p>
+ <p align="center"><sup><sub>pixel cred. @hookfang on toyhouse</sub></sup></p>
 
-  <p align="center">
-  (img at the top by guppy my gf :3)
-</p>
+ <p align="center">please read my linked listography for more info! </p>
+ 
+ [<p align="center">![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cmn54eaehkdweb6h32ii3y2zwi&cover_image=true&theme=novatorem&show_offline=false&background_color=3c0606&interchange=false&bar_color=ca5b4e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)</p>
+
+<p align="center"><img src="https://files.catbox.moe/9pq8dw.gif" /></p>
